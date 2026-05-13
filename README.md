@@ -1,6 +1,6 @@
 # Hi, I'm Sarah 👋
 
-🎯 **Radio Network Planner | Researcher | Aspiring PhD in Signal Processing for 6G Communications**
+🎯 **Radio Network Planner | Aspiring Data Analyst **
 
 ---
 
